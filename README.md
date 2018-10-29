@@ -9,7 +9,7 @@ I´m furro and bisexual, so anything that u expect for me is god.
 
 i had a lot of fetiches, the most that i enjoy are:
 
-1.- The tickles (i love that my uncle and my aunt makes me tickles  while i take a shower)
+1.- The tickles (i love when my uncle and my aunt makes me tickles  while i take a shower)
 2.- Dress like a dog when im started the hard sex.
 3.- Cumming in fruts
 4.- Do pop while my uncle sucks my dick.
